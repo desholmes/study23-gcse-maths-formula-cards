@@ -24,13 +24,15 @@ There are a lot of [GCSE Maths](https://www.study23.io/tags/gcse-maths/) [formul
 
 [Get started with GCSE Maths Formula Flash Cards free today](https://www.study23.io/subscriptions/)
 
+---
+
 ## Related Search Terms
 
 Here are some common search queries and related resources related to [GCSE Maths](https://www.study23.io/tags/gcse-maths/) revision and exam preparation.
 
-## Best GCSE Maths Revision Strategies
+### Best GCSE Maths Revision Strategies
 
-### What is the best way to revise for GCSE Maths?
+#### What is the best way to revise for GCSE Maths?
 
 There are many ways to revise for [GCSE Maths](https://www.study23.io/tags/gcse-maths/). The approach you take will depend on your learning style and how much time you have available. Try out different methods and see which one works best for you. Here are some blog posts that can help you find the [best way to revise for GCSE Maths](https://www.study23.io/search/?q=best+way+to+revise+for+GCSE+Maths#what-is-the-best-way-to-revise-for-gcse-maths):
 
@@ -51,9 +53,9 @@ Related shorter search phrases for [GCSE Maths revision](https://www.study23.io/
 2. Maths revision tips
 3. Learning Maths
 
-## How to improve in GCSE Maths?
+### How to improve in GCSE Maths?
 
-### What is the secret to improving in GCSE Maths?
+#### What is the secret to improving in GCSE Maths?
 
 It's no secret that small, consistent steps are the key to improving in GCSE Maths; in fact when it comes to learning anything. The best way to improve in Maths is by doing Maths. Practice regularly and consistently, this will make Maths less daunting and gradually improve your confidence and ability. If you put the hard work in, you will see the results.
 
